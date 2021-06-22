@@ -1,0 +1,5 @@
+- Hi, I’m @AmericanCurl
+- I’m interested in Minecraft mods
+- I’m currently learning Java Script and scripting in Unity
+- I’m looking to collaborate on making textures
+- You can reach me on my Discord! (not putting it there for privacy reasons)
